@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Sphelele Khumalo,
-- - 📫 How to reach me: 081 754 5332 skhumalo392@gmail.com
+- 📫 How to reach me: 081 754 5332 skhumalo392@gmail.com
   - My links:
 - https://www.hyperiondev.com/portfolio/SK24040014979/
 - http://www.linkedin.com/in/sphelele-khumalo-82b8711a9
